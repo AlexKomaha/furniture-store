@@ -1,1 +1,1 @@
-https://alexkomaha.github.io/furniture/
+https://alexkomaha.github.io/furniture-store/
